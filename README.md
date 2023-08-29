@@ -1,10 +1,10 @@
+- 🤗 **Sejam bem-vindos**
 - 👋 **Stefane Santos**
 -  👀**15y**
--🇧🇷 Perfil do inst/@**Tefa_042**.vão lá amores❤
--  ♑ **Capricórniana**
+- 🇧🇷Perfil do inst/@**Tefa_042**.vão lá amores❤
+- ♑ **Capricórniana**
 - ⚽️ **Flamengo**
 - 🥇**Futebol/Futsal**
-- 💌 **Seja bem vindo**
 - 🫀 **13.08.2022**
 - 🌱 **Estou utilizando como organização**
 - 💞️ **Procuro colaborar em estudos**
