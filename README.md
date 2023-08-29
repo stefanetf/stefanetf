@@ -1,6 +1,6 @@
 - 👋 **Stefane Santos**
 -  👀**15y**
--  🇧🇷 Perfil do inst/ @**Tefa_042**:
+-🇧🇷 Perfil do inst/@**Tefa_042**.vão lá amores❤
 -  ♑ **Capricórniana**
 - ⚽️ **Flamengo**
 - 🥇**Futebol/Futsal**
