@@ -2,9 +2,10 @@
 -  👀**15y**
 -  🇧🇷 Perfil do inst/ @**Tefa_042**:
 -  ♑ **Capricórniana**
+- ⚽️ **Flamengo**
 - 🥇**Futebol/Futsal**
 - 💌 **Seja bem vindo**
-- 🫀 **13.09.2022**
+- 🫀 **13.08.2022**
 - 🌱 **Estou utilizando como organização**
 - 💞️ **Procuro colaborar em estudos**
 - 📫 santos.silva.stefane@escola.pr.gov.br📫
